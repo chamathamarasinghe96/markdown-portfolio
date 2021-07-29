@@ -1,4 +1,4 @@
 * Hobbies
-  * Collecting stamps
-  * Reading books
-  * Hiking
+  * Collecting stamps 😛
+  * Reading books 📖
+  * Hiking 🚋
